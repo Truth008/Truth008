@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Truth
-- 👀 I’m interested in make life better, how may i be of help
+- 👀 I’m interested in making life better, how may i be of help
 - 🌱 I’m currently learning AICE Career Essential 
 - 💞️ I’m looking to collaborate on with you
 - 📫 How to reach me through my Email ~ innocentchrist@gmail.com
